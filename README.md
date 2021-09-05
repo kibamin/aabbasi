@@ -1,2 +1,2 @@
-www.aabbasi.ir
+aabbasi.ir
 
